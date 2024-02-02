@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sudeepsikha
-- 👀 I’m interested in ...AI, machine learning, cyber security, (international relations is something i love keeps me accelerated)
+- 👀 I’m interested in ...AI, machine learning, cyber security
 - 🌱 I’m currently learning ...AI, machine learning, cyber security,AI, machine learning, cyber security,AI, machine learning, cyber security,
 - 💞️ I’m looking to collaborate on ...AI, machine learning, cyber security,AI, machine learning, cyber security,
 - 📫 How to reach me ...+919550333896 
